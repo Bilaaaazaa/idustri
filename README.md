@@ -1,1 +1,1 @@
-# idustri
+# industri
